@@ -1,4 +1,4 @@
 # Chapter One
 ## about pills who rape
 
-I write to forget;  
+I write to forget; fiery anuses.
