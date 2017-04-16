@@ -1,5 +1,5 @@
-book_one; about aliens. 
+book_one; about aliens
 
-the story will not be interesting.
+the story will not be interesting
 
-you might particularly dislike the charachters.
+you might particularly dislike the charachters
